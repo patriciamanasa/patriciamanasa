@@ -11,7 +11,8 @@
 
 - 📫 How to reach me **patriciamanasa@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1w0FY3v48TKz7eI0WGNqc5GdkEejzVJVI13szvK_-RbA/edit?usp=sharing]([https://docs.google.com/document/d/1w0FY3v48TKz7eI0WGNqc5GdkEejzVJVI13szvK_-RbA/edit?usp=sharing](https://drive.google.com/file/d/18cjJOcqcqreEQ1QwrVs3OTt7KeG5jmjm/view?usp=sharing))
+- 📄 Know about my experiences 
+-[ ([https://docs.google.com/document/d/1w0FY3v48TKz7eI0WGNqc5GdkEejzVJVI13szvK_-RbA/edit?usp=sharing(https://drive.google.com/file/d/18cjJOcqcqreEQ1QwrVs3OTt7KeG5jmjm/view?usp=sharing))](https://drive.google.com/file/d/18cjJOcqcqreEQ1QwrVs3OTt7KeG5jmjm/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
